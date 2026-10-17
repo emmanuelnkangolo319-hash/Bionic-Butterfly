@@ -33,16 +33,25 @@ All links used in research:
 Aerodynamic equations:
 
 https://www.ajdesigner.com/wing-lift/
+
 https://www.youtube.com/watch?v=btTW_lPqMj0
+
 https://journals.biologists.com/jeb/article-abstract/204/15/2607/32781/The-control-of-flight-force-by-a-flapping-wing?redirectedFrom=fulltext
+
 https://www.sciencedirect.com/science/article/abs/pii/S1270963809000492
+
 https://www.icas.org/icas_archive/ICAS2008/PAPERS/171.PDF
+
 https://publications.gc.ca/site/archivee-archived.html?url=https%3A%2F%2Fpublications.gc.ca%2Fcollections%2Fcollection_2019%2Frddc-drdc%2FD68-4-012-2013-eng.pdf
 
 Blue morfo butterfly research:
 https://www.rainforest-alliance.org/species/blue-morpho-butterfly/
+
 https://www.vedantu.com/animal/morpho
+
 https://www.butterflyidentification.com/butterfly-facts/butterfly-flying
+
 https://www.sciencedirect.com/science/article/abs/pii/S0045793015001516
+
 https://journals.biologists.com/jeb/article-abstract/204/15/2607/32781/The-control-of-flight-force-by-a-flapping-wing?redirectedFrom=fulltext
 
